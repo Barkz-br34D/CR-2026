@@ -1,2 +1,3 @@
 # CR-2026
-Modernise a CR-10/s with as little money as possible with me!
+
+I Don't Own Any Of These Parts. I will Update This File with Credits Once I Go Back And Find Them in Printables :)
